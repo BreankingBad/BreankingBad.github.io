@@ -20,7 +20,7 @@ tags:
 
 happy 七夕情人节！ love u ♡♡♡
 
-![](/img/in-post/lagou.jpeg)
+![](/img/in-post/duola.jpeg)
 
 
 
